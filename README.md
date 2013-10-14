@@ -1,6 +1,7 @@
-EarthosBuild.v000.0 -U-Elements. UTC UniVersalCommunityTrust/ 
+EarthosBuild.v000.0 -U-Elements. UCT UniVersalCommunityTrust/ ~ this part is loose an sloppy still. but were here now.. 
 Ess.Versions Also includes a graduated 'shift'to a 
-UTC/UniveralCoordinatedTimeSystem/3Zone.sysTrinity Destiny (s/b4? I thinkin . tis a timer sync thing the clock for old sys is no more@ HERE.Forward.
+UTC/UniveralCoordinatedTimeSystem/3Zone.sysTrinity Destiny 
+(s/b4? I thinkin . tis a timer sync thing the clock for old sys is no more@ HERE.Forward.
 
 ===================
 
